@@ -1,2 +1,2 @@
 # hello-world
-This repository is for practicing the GitHub flow
+My name is Augustine Dustin Bullie, and I’m from Sierra Leone, West Africa. I come from a family of six, but I’m currently the only child alive. This has shaped my perspective on life in profound ways. I have a deep passion for football; the thrill of the game is something I truly cherish. It connects me to my community and brings so much joy. Music is another important part of my life; it’s my escape and a way to express my emotions. In my spare time, I love to read and watch movies. There’s something magical about getting lost in a good book or film that transports me to different worlds. I hold onto the memories of my family while embracing new experiences, and I strive to live life to the fullest.
